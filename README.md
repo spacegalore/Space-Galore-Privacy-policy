@@ -1,4 +1,4 @@
-# Space-Galore-Privacy-policy
+
 # Privacy Policy for Space Galore
 
 Effective date: 09 June 2025
